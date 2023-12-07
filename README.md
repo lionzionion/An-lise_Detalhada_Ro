@@ -1,0 +1,1 @@
+# An-lise_Detalhada_Ro
